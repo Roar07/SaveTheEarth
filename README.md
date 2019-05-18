@@ -12,6 +12,11 @@ Weakness -
 opps
 avenger.
 
+thinks he is the strogest avenger.
+tada 
+here is other weakness
+
+
 achievements(spoiler ahead)-
 1. kicking LOKI's ass in newyork Battle.
 2. killing more than half of Chituri Force.
