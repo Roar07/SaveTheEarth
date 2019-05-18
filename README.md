@@ -10,6 +10,8 @@ In Hulk form-SMASH,HULK SMASH.
 Weakness - 
 jusT smashes every thing
 
+thinks he is the strogest avenger.
+
 achievements(spoiler ahead)-
 1. kicking LOKI's ass in newyork Battle.
 2. killing more than half of Chituri Force.
