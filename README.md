@@ -12,6 +12,8 @@ In Bruce form-crowds as he is afraid of damage he may cause if he turns into hul
 IN Hulk form-lullaby-turn him back his weaker form Bruce.
 
 thinks he is the strogest avenger.
+tada 
+here is other weakness
 
 achievements(spoiler ahead)-
 1. kicking LOKI's ass in newyork Battle.
