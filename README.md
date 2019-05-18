@@ -9,7 +9,6 @@ In Hulk form-SMASH,HULK SMASH.
 
 Weakness - 
 jusT smashes every thing
-
 thinks he is the strogest avenger.
 
 achievements(spoiler ahead)-
