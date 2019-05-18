@@ -7,9 +7,10 @@ fav Habit:
 In Bruce form- talking about his tragic life because he can change to hulk in different places.....some prety tricky one.
 In Hulk form-SMASH,HULK SMASH.
 
-Weakness - 
-jusT smashes every thing
-thinks he is the strogest avenger.
+Weakness -
+
+opps
+avenger.
 
 achievements(spoiler ahead)-
 1. kicking LOKI's ass in newyork Battle.
