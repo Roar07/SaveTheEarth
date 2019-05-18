@@ -11,6 +11,8 @@ Weakness -
 In Bruce form-crowds as he is afraid of damage he may cause if he turns into hulk.....and offcourse Natasha Ramonhofff aka BLACk WIDOW.
 IN Hulk form-lullaby-turn him back his weaker form Bruce.
 
+thinks he is the strogest avenger.
+
 achievements(spoiler ahead)-
 1. kicking LOKI's ass in newyork Battle.
 2. killing more than half of Chituri Force.
