@@ -8,8 +8,7 @@ In Bruce form- talking about his tragic life because he can change to hulk in di
 In Hulk form-SMASH,HULK SMASH.
 
 Weakness - 
-In Bruce form-crowds as he is afraid of damage he may cause if he turns into hulk.....and offcourse Natasha Ramonhofff aka BLACk WIDOW.
-IN Hulk form-lullaby-turn him back his weaker form Bruce.
+jusT smashes every thing
 
 achievements(spoiler ahead)-
 1. kicking LOKI's ass in newyork Battle.
