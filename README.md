@@ -21,4 +21,6 @@ achievements(spoiler ahead)-
 7. have courge to challenge fully grown Surtur on Asgard.
 8. use infinity gautlet to bring everyone back to who were lost in snapp
    but lost his hand in the processs 
-ssss
+My view on this Character- 
+Awesome,brutal,dont care about what he does.
+now i m just thinking about how he will get his hand back to normal form.
